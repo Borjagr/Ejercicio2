@@ -1,2 +1,2 @@
 JEJ
-Soy Borja García Romaguera
+Soy Borja
